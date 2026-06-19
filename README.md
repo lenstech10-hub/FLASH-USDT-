@@ -35,5 +35,5 @@ SUPPORT & QUESTIONS:
 Need help installing or activating? DM me directly:  
 https://t.me/wisemanadams888
 
-Let me know once you’ve installed the app so I can guide you through setup and get you flashing in no time!
+Let me know once you’re ready i will sendyou the apps they're avaliable APK,Laptop,Linux the app so I can guide you through setup and get you flashing in no time!
 
